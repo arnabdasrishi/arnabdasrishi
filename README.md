@@ -4,7 +4,7 @@
 
 <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/>
   
-  <h3>Portfolio: https://arnabsportfolio.netlify.app/</h3>
+  <h3>Portfolio: https://arnabdasrishi.github.io/</h3>
   <br/>
   
   <h3 align="left">Languages and Tools:</h3>
