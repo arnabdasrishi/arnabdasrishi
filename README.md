@@ -24,7 +24,7 @@
 
 - 📫 How to reach me **arnabdasrishi@gmail.com**
 
-- 📄 Know about my experiences [[[https://drive.google.com/file/d/13kcADR2b6bxzk0ABQv4zjTuhaWjfrMGT/view?usp=sharing](https://onedrive.live.com/?cid=50dc5fdfb679acaa&id=50DC5FDFB679ACAA%21118&ithint=file%2Cpdf&authkey=%21ALAtVCEG9hP%5Fveo&sw=bypassConfig)](https://drive.google.com/file/d/1GmhCgxCUo2ppB3NP_u0WaxgDXQJDYuYP/view?usp=sharing)]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1GmhCgxCUo2ppB3NP_u0WaxgDXQJDYuYP/view?usp=sharing]
 
 - ⚡ Loves **Playing Piano🎹❤️**
 <br/> <br/> <br/> <br/>
